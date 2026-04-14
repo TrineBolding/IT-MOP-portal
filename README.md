@@ -1,1 +1,0 @@
-# IT-MOP-portal
